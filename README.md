@@ -1,4 +1,5 @@
-💫 About Me
+💫 About Me.
+<br>
 <br>
 🎓 Student<br>
 🌐 Curious about the internet and the meaning of life <br>
