@@ -1,9 +1,9 @@
 💫 About Me
-
-🎓 Student
-🌐 Curious about the internet and the meaning of life
-📚 Love reading fantasy stories, novels, and deep philosophical ideas
-🧠 Always exploring thoughts, questions, and perspectives beyond the surface
+<br>
+🎓 Student<br>
+🌐 Curious about the internet and the meaning of life <br>
+📚 Love reading fantasy stories, novels, and deep philosophical ideas <br>
+🧠 Always exploring thoughts, questions, and perspectives beyond the surface <br>
 📍 From Waling, Syangja, Nepal 🇳🇵
 
 
