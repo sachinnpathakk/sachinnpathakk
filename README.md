@@ -2,10 +2,10 @@
 <br>
 <br>
 🎓 Student<br>
-🌐 Curious about the internet and the meaning of life <br>
+🌐 Curious about the internet and the meaning of life. 🦾 <br>
 📚 Love reading fantasy stories, novels, and deep philosophical ideas <br>
-🧠 Always exploring thoughts, questions, and perspectives beyond the surface <br>
-📍 From Waling, Syangja, Nepal 🇳🇵
+🧠 Always exploring thoughts, questions, and perspectives beyond the surface. <br>
+📍 From Waling, Syangja, Nepal. 🇳🇵
 
 
 
