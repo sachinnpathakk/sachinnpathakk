@@ -2,8 +2,8 @@
 <br>
 <br>
 🎓 Student<br>
+📚 Love reading books  <br>
 🌐 Curious about the internet and the meaning of life. 🦾 <br>
-📚 Love reading books but that doesn't mean i'm nerd <br>
 🧠 Always exploring thoughts, questions, and perspectives beyond the surface. <br>
 📍 From Waling, Syangja, Nepal. 🇳🇵
 
