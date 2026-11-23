@@ -1,10 +1,9 @@
-💫 About Me.
-<br>
-<br>
-🎓 Student<br>
-📚 Love reading books  <br>
-🌐 Curious about the internet and the meaning of life. 🦾 <br>
-🧠 Always exploring thoughts, questions, and perspectives beyond the surface. <br>
+
+<br> 17 yo
+<br>VP @ Youth Club ~Webmaster.
+<br>  Self-taught Independent Researcher.<br>
+ <br>
+ <br>
 📍 From Waling, Syangja, Nepal. 🇳🇵
 
 
