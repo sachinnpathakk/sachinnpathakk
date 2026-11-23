@@ -1,9 +1,8 @@
 
-<br> 17 yo
+<br>17 yo
 <br>VP @ Youth Club ~Webmaster.
-<br>  Self-taught Independent Researcher.<br>
-📍 From Waling, Syangja, Nepal. 🇳🇵
-
+<br>Self-taught Independent Researcher.<br>
+ <br>Waling, Syangja, Nepal. 🇳🇵
 
 
 ## 🌐 Socials:
