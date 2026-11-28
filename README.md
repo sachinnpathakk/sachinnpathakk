@@ -1,8 +1,8 @@
 
 <br>17 yo
 <br>VP @ Youth Club ~Webmaster.
+Frontend UI/UX && Conversion Copy<br>
 <br>Self-taught Independent Researcher.<br>
-Rookie CopyWriter<br>
 Waling, Syangja, Nepal. 🇳🇵
 
 
