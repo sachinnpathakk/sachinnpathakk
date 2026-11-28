@@ -2,7 +2,7 @@
 <br>17 yo
 <br>VP @ Youth Club ~Webmaster.
 <br>Self-taught Independent Researcher.<br>
-<br>Rookie CopyWriter<br>
+Rookie CopyWriter<br>
 Waling, Syangja, Nepal. 🇳🇵
 
 
